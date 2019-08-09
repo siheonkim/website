@@ -1,1 +1,1 @@
-## Welcome to Pages
+Welcome to Pages
